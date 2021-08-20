@@ -4,7 +4,7 @@
 
 This is a little present I made for my wife for mothers day
 
-It's a shelf that have a snoopy figure on it so show can put her phone and earphones when shes on bed
+It's a shelf that have a snoopy figure on it so she can put her phone and earphones when she's on bed
 
 ## sources
 
